@@ -95,6 +95,6 @@ Contact Us
 
 If you have any questions regarding this Privacy Policy, please contact us:
 
-Email: your-email@example.com
+Email: on.bozo@gmail.com
 
 © 2026 Asah Otak Indonesia. All rights reserved.
